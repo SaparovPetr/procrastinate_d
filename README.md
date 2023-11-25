@@ -1,1 +1,1 @@
-https://saparovpetr.github.io/procrastinate/
+https://saparovpetr.github.io/procrastinate_d/
